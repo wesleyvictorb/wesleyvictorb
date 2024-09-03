@@ -9,6 +9,7 @@ Sou o Wesley Victor, aluno do Ensino Médio da Escola Isac Pereira Garcez de Dra
 
 00001077629734SP@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/8wycuJYMYdUAAAAC/harmonymaraj-lil-uzi-vert.gif)
+
+![](https://media.tenor.com/NfEGhy9EiWkAAAAM/jealous.gif)
 
 
